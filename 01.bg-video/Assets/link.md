@@ -1,0 +1,1 @@
+https://www.pexels.com/pt-br/video/inteligencia-artificial-jogo-de-tabuleiro-xadrez-pecas-de-xadrez-8327799/
